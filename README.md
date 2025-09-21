@@ -23,7 +23,7 @@
 
 ### 📫 How to reach me:
 
-- 🐦 Twitter: [@Vidhan17Thakur](https://twitter.com/Vidhan17Thakur)
+- 🐦 Twitter: [@Cyb3r_C0re17](https://x.com/Cyb3r_C0re17)
 - 💼 LinkedIn: [Vidhan Thakur](https://linkedin.com/in/vidhan-thakur)
 
 
